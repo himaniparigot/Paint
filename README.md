@@ -1,5 +1,4 @@
-# Paint
-what does the paint say?
+
 
 THE DOORWAY !
 In life we all encounter some doorways that leads us to teach something,at first remaining unknown to one’s consciousness.Everybody has to live or survive the rushing tik-tok of their lives which paces parallely with.Let it be a celebration of birthday with laughters or tears,a cuddle with your emotions or the person,a cry over his music or a smile over that shared piece of sweet.
